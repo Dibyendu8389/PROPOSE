@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif)](https://rishavchanda.io)
+[![MasterHead](https://edems.in/wp-content/uploads/2024/04/output-onlinegiftools.gif)](https://rishavchanda.io)
 <h1 align="center">Hi 👋, I'm Dibyendu Pradhan !</h1>
 <h3 align="center">A Robtics🤖 Engineer🧑🏻‍🎓.</h3>
 <img align="right" alt="Coding" width="400" src="https://assets.techcircle.in/uploads/article-image/2018/08/images/16288-chatbot.gif">
